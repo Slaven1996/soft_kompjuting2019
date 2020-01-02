@@ -1,0 +1,1 @@
+# soft_kompjuting2019
